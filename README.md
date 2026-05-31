@@ -4,4 +4,4 @@
 
 <img src="https://pixels.crd.co/assets/images/gallery27/e6e0f9e6.gif?v=29416114" alt="Etch-a-Sketch"/> bisexual :: i'll figure out a gender eventually??
 
-<img src="(https://pixels.crd.co/assets/images/gallery52/809a5fcf.gif?v=29416114)" alt="Film"/> deltarune fan along with many other fandoms, you'll see me in a cosplay 98% of the time
+<img src="https://pixels.crd.co/assets/images/gallery52/809a5fcf.gif?v=29416114" alt="Film"/> deltarune fan along with many other fandoms, you'll see me in a cosplay 98% of the time
