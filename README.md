@@ -8,4 +8,5 @@
 
 <img src="https://file.garden/afKsUCcUngz43hjH/tvgif.gif" alt="TV"/>  feel free to cuddle! i'll usually be offtab so whisper 2 interact or whatever
 
-<a href="https://www.tumblr.com/velvetcompendium"><img src="https://64.media.tumblr.com/d9ec08cfecf2fb3c3e4421e9b762283f/f41f49c3a5fb10df-fa/s250x400/0ce1361e667b2ea9cfd710605d1668d5fc930972.gifv" alt="Typing SVG" /></a>
+<a href="https://www.tumblr.com/velvetcompendium"><img src="https://64.media.tumblr.com/af9503826168ff6fe09f376a0758bb0c/f41f49c3a5fb10df-4c/s100x200/0033b9c53b7a91c59beb81052f2ad933a5ae895a.gifv" alt="tennerimg" /></a><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/13white/7.gif" alt="retro" /><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/13white/60.gif" alt="static" /><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/14grey/27.gif" alt="horror" /><img src="https://sewerwolfx.neocities.org/graphics/imvubuttons/14grey/16.gif" alt="radical" />
+
